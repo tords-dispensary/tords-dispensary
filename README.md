@@ -17,7 +17,7 @@
 <p align="center">
    . I am an Addiction holder and Apathy holder.
 <p align="center">
-. Please do not interect if you are under 17.
+. Please do not interect if you are under 17, 16 thin ice.
 <p align="center">
 . You may c + h at any time.
 <p align="center">
