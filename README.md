@@ -5,6 +5,10 @@
 
 <sub>This will take you to our main page ﹒　[main system page](https://github.com/LestatDuLac)　﹒　<sub>
 
+ <p align="center">
+<sub>Usually whisper to intract.</sub>
+
+
 ![image](https://i.postimg.cc/xT1dXQtN/IMG-4501.png)
  <p align="center">
    𓏲 . My name is ${\textsf{\color{#780606}Tord}}$, and my pronouns are ${\textsf{\color{#780606}he / him.}}$
