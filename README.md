@@ -1,6 +1,7 @@
 
 # 𓏲 ๋࣭  ࣪ ˖ tord's pt info.
 ***This is not our main github, i am an introject in a DID system.***
+
 https://github.com/LestatDuLac . . . Main System Page
 ---------
 
