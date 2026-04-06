@@ -3,10 +3,10 @@
 ***This is not our main github, i am an introject in a DID system.***
 ---------
 *𓏲 . My name is Tord , and my pronouns are he / him.*
+ 
+  𓏲 ๋࣭  ࣪ ˖ *𓏲 . 
 
-𓏲 ๋࣭  ࣪ ˖ *𓏲 . 
-
-*. I am an Addiction holder and Apathy holder.*
+             *. I am an Addiction holder and Apathy holder.*
 
 *. Please do not interect if you are under 17.*
 
