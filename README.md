@@ -2,7 +2,7 @@
 # 𓏲 ๋࣭  ࣪ ˖ tord's pt info.
  <p align="center">
 <sub>this is not our main github, i am an introject in a DID system.</sub>
- <p align="center">
+
 <sub>This will take you to our main page ﹒　[main system page](https://github.com/LestatDuLac)　﹒　<sub>
 
 ![image](https://i.postimg.cc/xT1dXQtN/IMG-4501.png)
