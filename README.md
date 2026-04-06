@@ -1,5 +1,6 @@
 
 # 𓏲 ๋࣭  ࣪ ˖ tord's pt info.
+***This is not our main github, i am an introject in a DID system.***
 
 𓏲 . My name is Tord , and my pronouns are he / him.
 
