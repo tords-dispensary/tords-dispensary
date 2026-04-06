@@ -1,5 +1,5 @@
 
-#𓏲 ๋࣭  ࣪ ˖ tord's pt info.
+# 𓏲 ๋࣭  ࣪ ˖ tord's pt info.
 
 𓏲 . My name is Tord , and my pronouns are he / him.
 
