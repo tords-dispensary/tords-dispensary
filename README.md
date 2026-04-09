@@ -15,7 +15,7 @@
  <p align="center">
   𓏲 ๋࣭  ࣪ ˖ *𓏲 . 
 <p align="center">
-   . I am an Addiction holder and Apathy holder.
+   . I am an Addiction holder and Apathy holder, Im also one of the hosts beside Valentino.
 <p align="center">
 . Please do not interect if you are under 17, 16 thin ice.
 <p align="center">
